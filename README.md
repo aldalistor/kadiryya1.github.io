@@ -1,1 +1,1 @@
-# kadiryya1.github.io
+# aldalistore.github.io
